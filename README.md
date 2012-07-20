@@ -1,4 +1,4 @@
 Wallpapers
 ==========
 
-My Wallpapers
+Wallpaper collection.
